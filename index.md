@@ -57,3 +57,20 @@ Things that went wrong and how they went wrong:
 
 Notes for tomorrow:
 1. Make a plan when you get up about what to get done/ how much to work. Stick to the numbers as best you can.
+
+### March 26 2021
+Positives:
+1.Recovered most objectives for the day even if a little sloppy
+2.Found one source of motivation
+3.Completed finding a panel
+4.Completed some preliminary work for TA work
+5.Continued journaling
+6.Bought food and breakfast for the week
+
+Things that were not so hot:
+1. Woke up feeling tired and hungry but with no food. Due to lack of food didn't feel motivated. Got easily distracted. Cosntantly wanted distractions as a result. 1000lb sister got me motivated enough to shop and that snowballed into a bunch of stuff
+2. Didn't have quality metrics in my objectives for the day, so basically just worked to get shit done. This can be a double-edged sword.
+
+Tomorrow's focus:
+1. Try incentivising. Or come up with desirable incentives.
+2. Try having quality metrics
