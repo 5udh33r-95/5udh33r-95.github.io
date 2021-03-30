@@ -74,3 +74,19 @@ Things that were not so hot:
 Tomorrow's focus:
 1. Try incentivising. Or come up with desirable incentives.
 2. Try having quality metrics
+
+### March 30 2021
+My update from the day before didn't save :(
+
+Positives:
+1. Worked a ton, although mostly on course stuff.
+2. Totally ready for tomorrow and the day after's classes.
+3. Have a rough plan for the week in general and feel I might be able to handle it.
+
+Things that were not so hot:
+1. I mostly only worked on course stuff although I wanted to do a bit of coding today. I kept thinking I should plan the day out but I kept adding to my laundry list of things to do before I called it a day that I ended up not eating or even taking a shower.
+2. I didn't prioritise self-care again.
+
+Tomorrow's focus:
+1. Try to have a plan of how much time you want to put into each part of your life
+2. Include self-care into that plan.
