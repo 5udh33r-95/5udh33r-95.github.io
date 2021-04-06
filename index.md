@@ -52,3 +52,15 @@ Things that were not so hot:
 Tomorrow's focus:
 1. Try to have a plan of how much time you want to put into each part of your life
 2. Include self-care into that plan.
+
+### April 6th 2021
+It is so hard to make and maintain a habit :(
+
+Positives:
+1. Remembered to do this. Kinda felt the necessity.
+2. Finished FNT grading. Didn't take very long.
+3. Watched a lot of new anime and decided what I am interested in.
+
+Negatives:
+1. Didn't accomplish any of the things I wanted to. I think I am nervous about the success rate 
+2. Didn't prepare for tomorrow's DL which might affect my performance tomorrow.
