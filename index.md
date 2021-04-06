@@ -64,3 +64,7 @@ Positives:
 Negatives:
 1. Didn't accomplish any of the things I wanted to. I think I am nervous about the success rate 
 2. Didn't prepare for tomorrow's DL which might affect my performance tomorrow.
+
+Things to try tomorrow:
+1. Incentives
+2. Convince yourself it can be done and that you are capable of doing it. Positive thinking
