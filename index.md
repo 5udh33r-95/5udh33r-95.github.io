@@ -68,3 +68,18 @@ Negatives:
 Things to try tomorrow:
 1. Incentives
 2. Convince yourself it can be done and that you are capable of doing it. Positive thinking
+
+### April 7th 2021
+Still keeping the habit
+
+Positives:
+1. Got food
+2. Tried some stuff at lab that didn't work
+3. Talked to my parents and felt good even though I felt like I shouldn't
+
+Negatives:
+1. Didn't do any research
+
+Things to try tomorrow:
+1. Positive self talk
+2. Exercise
