@@ -83,3 +83,9 @@ Negatives:
 Things to try tomorrow:
 1. Positive self talk
 2. Exercise
+
+### April 15th 2021
+Positives:
+1. Did everything I wanted to do: exercised, ate well, taught well, did research.
+2. Got back to doing this. It's proving difficult, but I really want to make a habit of it.
+3. Was feeling a bit bad that Inna doesn't seem to think I should be a GSR or that I lost her favor. But I think I am Iroh. I realise there are things more beautiful and fulfilling than research for me. The world has a lot of amazing things to offer- the excitement of these kids when things click for them, the joy of eating the perfect pizza (goat cheese and gorgonzola cheese is a match made in heaven), joy of being able to skip with decent form 20 times, the memory of peace when I just sat on a rock and was surrounded by firecrackers in all directions. As I told someone else, "Life has so many experiences that missing a few doesn't mean anything. Some infinites may be smaller than others, but all infinites are plenty large for everyone."
